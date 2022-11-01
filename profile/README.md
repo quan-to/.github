@@ -1,1 +1,1 @@
-![pcm-opbk-istock-bg-lg 7854bbd2_](https://user-images.githubusercontent.com/66042/199309035-5e547f36-bfa2-4816-9c86-07a5197a16cd.jpg)
+![quanto](https://user-images.githubusercontent.com/66042/199309151-03ba351d-7dba-4533-a778-01b3e1c4927e.png)
